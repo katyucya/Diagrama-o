@@ -1,1 +1,1 @@
-# Diagrama-o
+# Diagramação
